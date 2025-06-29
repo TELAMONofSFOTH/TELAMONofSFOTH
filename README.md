@@ -11,7 +11,8 @@
 <p align="center"><sub>I like drawing!!!</sub>
 
 <p align="center"> ♡
-  
+
+  [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=And+I+Said,+"I+Love+You".;He+Replied,+"I+Love+You+Too".;He-+Wow,+He+What?;He+Loves+Me+Too?;I+WON!!!!!!!+YES!)](https://git.io/typing-svg)
 ![1004232276](https://github.com/user-attachments/assets/6791ebf6-f395-4f54-86e3-b81a28337b21)
 ㅤㅤ ![1004231485](https://github.com/user-attachments/assets/5359b4f3-1d9c-4959-9637-f9127a68fc45)
 
