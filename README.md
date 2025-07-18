@@ -3,7 +3,7 @@
 ㅤㅤ ![1004231485](https://github.com/user-attachments/assets/5359b4f3-1d9c-4959-9637-f9127a68fc45)
 ![1004231623](https://github.com/user-attachments/assets/a3b6a7c6-5e4d-45d5-9b2d-8a375edcdf91)
  ***───AKSEIRIOS/AKSE*** ㅤ<sub>@TELAMONofSFOTH</sub>
-<p align="center">★He/It · Selective Mutism · Questioning Sexuality · Transgender (FTM)★
+<p align="center">★He/It · Selective Mutism · Questioning Sexuality (acknowledged being polyamorous) · Transgender (FTM)★
 <p align="center"> ♡
 <p align="center"><sub>You can call me Telamon, Shedletsky, Lezus/ia, Subspace, or Astro, anything you'd like.
 <p align="center"><sub>I appreciate crowns!!! It makes me proud. (I'm just prideful)
